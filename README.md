@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dhanveersingh
-- 👀 I’m interested in Web Designing, Video Editing and Gaming Stuff
+- 👀 I’m interested in Web Designing, Video Editing, Graphic Designing
 - 🌱 I’m currently learning Front End Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me dhanveer1111@gmail.com
